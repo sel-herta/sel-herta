@@ -10,7 +10,6 @@ When I'm not engineering, you can usually find me:
 * 🏃‍♂️ **Playing Rhythm Games:** Training intense-stamina doubles on *Pump It Up/ITG*. [clip](https://youtube.com/shorts/3QNvQVckiqA?si=FMdpedM1ub9z6ihQ)
 * 📸 **Photography:** capturing landscape photography.
 
-**Ask me about:** Rhythm games, finding the perfect keyboard switch, or what kind of genetics are ideal for rhythm games (I have an uncanny curiosity about this...)
+**Ask me about:** Rhythm games, finding the perfect keyboard switch, what kind of genetics are ideal for rhythm games (I have an uncanny curiosity about this...), or anything Herta from Honkai: Star Rail
 
 ---
-[LinkedIn](https://www.linkedin.com/in/william-tu-17264438a/) | [Email](mailto:wtujo83@gmail.com)
